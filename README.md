@@ -1,1 +1,1 @@
-
+<img src="https://i.ibb.co/hDwr2zL/Verde-Laranja-e-Rosa-Org-nico-Corporativo-PME-Kit-de-Marketing-Banner-para-Linked-In-1.gif" alt="Verde-Laranja-e-Rosa-Org-nico-Corporativo-PME-Kit-de-Marketing-Banner-para-Linked-In-1" border="0">
